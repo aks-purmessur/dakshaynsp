@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @dakshaynsp
+- 👋 Hi, I’m @aks-purmessur
 - 👀 I’m interested in doing some projects.
 - 📫 Reach me on akshaypurmessur@outlook.com
 
